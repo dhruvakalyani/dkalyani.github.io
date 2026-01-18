@@ -1,2 +1,2 @@
 # About Me
-![Picture of me from Green Bank Observatory](https://myoctocat.com/assets/images/base-octocat.svg)
+![Picture of me from Green Bank Observatory](2025_Dhruva.Kalyani.jpg)
