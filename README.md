@@ -1,2 +1,1 @@
-# Dhruva Kalyani
-## About Me
+# About Me
